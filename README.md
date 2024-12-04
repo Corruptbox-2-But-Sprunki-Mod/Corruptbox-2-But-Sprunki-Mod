@@ -1,7 +1,6 @@
 # Corruptbox 2 But Sprunki - Play the Incredibox Sprunki Mod Online  
 
-**Corruptbox 2 But Sprunki** is an imaginative sequel that blends the Sprunki Incredibox universe with the glitch-filled chaos of Corruptbox, delivering a thrilling, experimental music-making adventure. This game amps up the eerie vibe of its predecessor with glitchy visuals and unsettling audio, perfect for fans of dark aesthetics and avant-garde soundscapes.  
-
+Discover **Corruptbox 2 But Sprunki**—a groundbreaking music creation platform designed to spark your artistic passion. Dive into a world of enchanting characters, unique soundscapes, and a sleek, user-friendly interface. With **Corruptbox 2 But Sprunki**, the possibilities for musical exploration and creative expression are endless. Start your sonic adventure today and unlock your full creative potential!
 
 ## Play Corruptbox 2 But Sprunki Now
 Are you ready to dive into an enchanting journey of music? Let’s begin the adventure!
@@ -15,6 +14,8 @@ Are you ready to dive into an enchanting journey of music? Let’s begin the adv
 
 
 ## What Is Corruptbox 2 But Sprunki?  
+
+**Corruptbox 2 But Sprunki** is an imaginative sequel that blends the Sprunki Incredibox universe with the glitch-filled chaos of Corruptbox, delivering a thrilling, experimental music-making adventure. This game amps up the eerie vibe of its predecessor with glitchy visuals and unsettling audio, perfect for fans of dark aesthetics and avant-garde soundscapes.  
 
 In **Corruptbox 2 But Sprunki**, players encounter distorted versions of beloved Sprunki characters, each redesigned with creepy, glitch-inspired aesthetics. Key features include:  
 

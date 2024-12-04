@@ -32,14 +32,14 @@ In **Corruptbox 2 But Sprunki**, players encounter distorted versions of beloved
 4. **Save and Share**: Record your creations and share them with a thriving community of experimental artists.  
 
 
-## Standout Features  
+## Standout Features of Corruptbox 2 But Sprunki
 
 - **Glitched-Out Designs**: A darker, twisted take on the Sprunki universe, featuring eerie, corrupted characters.  
 - **Challenging Soundscapes**: Fragmented beats and chaotic audio effects push your creativity to its limits.  
 - **Immersive Atmosphere**: The corrupted interface and haunting visuals pull players into a deeply engaging experience.  
 
 
-## Why You Should Play  
+## Why You Should Play Corruptbox 2 But Sprunki?
 
 **Corruptbox 2 But Sprunki** is perfect for those who enjoy horror-inspired themes, experimental creativity, or unconventional music-making. The game’s innovative design offers not just entertainment but an opportunity to explore uncharted musical territory.  
 

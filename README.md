@@ -1,16 +1,45 @@
-## Hi there 👋
+# Corruptbox 2 But Sprunki - Play the Incredibox Sprunki Mod Online  
 
-<!--
-**Corruptbox-2-But-Sprunki-Mod/Corruptbox-2-But-Sprunki-Mod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Corruptbox 2 But Sprunki** is an imaginative sequel that blends the Sprunki Incredibox universe with the glitch-filled chaos of Corruptbox, delivering a thrilling, experimental music-making adventure. This game amps up the eerie vibe of its predecessor with glitchy visuals and unsettling audio, perfect for fans of dark aesthetics and avant-garde soundscapes.  
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Play Corruptbox 2 But Sprunki Now
+Are you ready to dive into an enchanting journey of music? Let’s begin the adventure!
+
+### [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
+### [Sprunki Corruptbox 3 Infected War](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
+### [Sprunki Gyat](https://sprunkisinner.org/sprunki-gyat)
+
+
+[![Corruptbox 2 But Sprunki](https://sprunkisinner.org/_nuxt/corruptbox-2-but-sprunki.Dd6y891n.jpg)](https://sprunkisinner.org/corruptbox-2-but-sprunki)
+
+
+## What Is Corruptbox 2 But Sprunki?  
+
+In **Corruptbox 2 But Sprunki**, players encounter distorted versions of beloved Sprunki characters, each redesigned with creepy, glitch-inspired aesthetics. Key features include:  
+
+- **Expanded Corrupt Characters**: Each warped character offers a distinct sound profile, enriching the game's haunting ambiance.  
+- **Distorted Audio Design**: Explore fragmented beats and melodies to create eerie, innovative compositions.  
+- **Dynamic Visual Glitches**: Flickering screens and erratic animations intensify the unsettling atmosphere.  
+
+
+## How to Play Corruptbox 2 But Sprunki  
+
+1. **Choose Your Characters**: Drag and drop glitchy Sprunki avatars onto the stage to kick off your musical journey.  
+2. **Mix and Match Sounds**: Combine fragmented audio samples to craft hauntingly original tracks.  
+3. **Uncover Hidden Secrets**: Experiment with character combos to unlock secret animations and effects.  
+4. **Save and Share**: Record your creations and share them with a thriving community of experimental artists.  
+
+
+## Standout Features  
+
+- **Glitched-Out Designs**: A darker, twisted take on the Sprunki universe, featuring eerie, corrupted characters.  
+- **Challenging Soundscapes**: Fragmented beats and chaotic audio effects push your creativity to its limits.  
+- **Immersive Atmosphere**: The corrupted interface and haunting visuals pull players into a deeply engaging experience.  
+
+
+## Why You Should Play  
+
+**Corruptbox 2 But Sprunki** is perfect for those who enjoy horror-inspired themes, experimental creativity, or unconventional music-making. The game’s innovative design offers not just entertainment but an opportunity to explore uncharted musical territory.  
+
+Dive into the chaotic brilliance of **Corruptbox 2 But Sprunki** and transform chaos into art!  

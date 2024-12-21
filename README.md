@@ -17,10 +17,6 @@ Are you ready to dive into an enchanting journey of music? Let’s begin the adv
 - [Corruptbox 3 x Sprunki](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
 - [Corruptbox But Sprunki](https://sprunkisinner.org/corruptbox-but-sprunki)
 
-
-[![Corruptbox 2 But Sprunki](https://sprunkisinner.org/_nuxt/corruptbox-2-but-sprunki.Dd6y891n.jpg)](https://sprunkisinner.org/corruptbox-2-but-sprunki)
-
-
 ## What Is Corruptbox 2 But Sprunki?  
 
 **Corruptbox 2 But Sprunki** is an imaginative sequel that blends the Sprunki Incredibox universe with the glitch-filled chaos of Corruptbox, delivering a thrilling, experimental music-making adventure. This game amps up the eerie vibe of its predecessor with glitchy visuals and unsettling audio, perfect for fans of dark aesthetics and avant-garde soundscapes.  
@@ -31,6 +27,7 @@ In **Corruptbox 2 But Sprunki**, players encounter distorted versions of beloved
 - **Distorted Audio Design**: Explore fragmented beats and melodies to create eerie, innovative compositions.  
 - **Dynamic Visual Glitches**: Flickering screens and erratic animations intensify the unsettling atmosphere.  
 
+[![Corruptbox 2 But Sprunki](https://sprunkisinner.org/_nuxt/corruptbox-2-but-sprunki.Dd6y891n.jpg)](https://sprunkisinner.org/corruptbox-2-but-sprunki)
 
 ## How to Play Corruptbox 2 But Sprunki  
 

@@ -27,7 +27,9 @@ In **Corruptbox 2 But Sprunki**, players encounter distorted versions of beloved
 - **Distorted Audio Design**: Explore fragmented beats and melodies to create eerie, innovative compositions.  
 - **Dynamic Visual Glitches**: Flickering screens and erratic animations intensify the unsettling atmosphere.  
 
+
 [![Corruptbox 2 But Sprunki](https://sprunkisinner.org/_nuxt/corruptbox-2-but-sprunki.Dd6y891n.jpg)](https://sprunkisinner.org/corruptbox-2-but-sprunki)
+
 
 ## How to Play Corruptbox 2 But Sprunki  
 
